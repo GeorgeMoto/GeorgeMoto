@@ -1,4 +1,4 @@
-## Hi, I'm a Geoorgiy and I study data science 👋
+## Hi, I'm a Georgiy and I study data science 👋
 
 
 ## 🌐 Socials:
